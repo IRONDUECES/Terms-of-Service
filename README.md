@@ -14,4 +14,4 @@ The App is provided on an "as is" and "as available" basis without warranties of
 6. Changes to Terms
 We reserve the right to modify these Terms of Service at any time. Continued use of the App following any changes indicates your acceptance of the new terms.
 7. Contact Us
-If you have any questions about these Terms of Service, please contact us at: your-email@example.com
+If you have any questions about these Terms of Service, please contact us at: customersupport_irondeuces@gmail.com
